@@ -1,6 +1,6 @@
 # Gitanjali and Aref Reception: Signature Drinks
 
-* Autumn in Manhattan: 
+* Spring in Manhattan: 
   Pumpkin-spice bitters give a fall feeling to this classic bourbon-vermouth cocktail 
 * Orchard Mimosa: 
   Champagne meets apple cider, garnished with a cinnamon-sugar rim
